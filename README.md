@@ -1,1 +1,1 @@
-# Economics
+# Economics Team
